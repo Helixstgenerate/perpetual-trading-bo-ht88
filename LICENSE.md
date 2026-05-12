@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated perpetual trading bot Utility | isolated-margin + high-frequency, the #1 perpetual trading bot. Includes isolated-margin and high-frequency for a
 
 
 
